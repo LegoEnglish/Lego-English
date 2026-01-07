@@ -128,3 +128,4 @@
 翻译： 不知道说啥就闭嘴。
 
 吐槽： 如果所有人都能懂这个积木，世界将清静 99%。
+![Wittgenstein Shut Up Logic](unnamed.jpg)
